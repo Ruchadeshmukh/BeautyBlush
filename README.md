@@ -1,1 +1,2 @@
 # BeautyBlush
+we hope you love the products we recommed!!all of them were independently selected by our editors. just so you know bread brauty supply is black women owned small business that was founded by hiNA HEIM IN 2022 all of their products are made to work curls, braids or however you want to wear youe natural looking glowing skin it's pratically great for anyone with skin stone foundation used it.the packing is all amazing products
